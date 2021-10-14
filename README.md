@@ -1,3 +1,4 @@
 This is My Web(HTML/CSS/JavaScript) Study Process.
 
-Thanks for watching!
+My English is very pool, so sorry to speak awful English. :(
+But anyway, THANKS FOR YOUR WATCHING! :)
